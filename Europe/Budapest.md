@@ -19,3 +19,5 @@ Order the dessert strudels. They make them when you order and they are served wa
 * Great strudel place - best one I visited http://www.budavariretesvar.hu/
 * Second best strudel place -  http://www.reteshaz.com/
 
+Bars
+* Boutiq Bar -- great cocktails: http://www.boutiqbar.hu/
