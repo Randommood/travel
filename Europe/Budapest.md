@@ -14,6 +14,7 @@ Sights we went to in 2013
 
 
 Restaurants
+* Marvelosa - http://www.marvelosa.eu/ Amazing food!
+* Recommended to me - http://www.zsakbamacska.info/start.html will try the next time I visit
 * Great strudel place - best one I visited http://www.budavariretesvar.hu/
 * Second best strudel place -  http://www.reteshaz.com/
-*
