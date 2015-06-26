@@ -14,8 +14,6 @@ Sights we went to in 2013
 
 
 Restaurants
-* Gundel - you want everything here. Their Palinka is amazing - my favorite was the pear one (and plum, and quince, and apple, fuck it have all of them)  http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Restaurants-Budapest-Gundel-BR-1.html
-Order the dessert strudels. They make them when you order and they are served warm.
 * Great strudel place - best one I visited http://www.budavariretesvar.hu/
 * Second best strudel place -  http://www.reteshaz.com/
-
+*
