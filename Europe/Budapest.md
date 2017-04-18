@@ -25,10 +25,10 @@ Wine
 * Parliament house - http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Things_To_Do-Budapest-Parliament_Orszaghaz-BR-1.html - best thing to do is to [get tour tickets online](http://hungarianparliament.com/tours/). You'll save yourself a lot of hassle
 * Gellért Hill - https://en.wikipedia.org/wiki/Gell%C3%A9rt_Hill - Walked up the hill for a fantastic view of the city and checked out the citadel
 * Hungarian Opera house - http://www.opera.hu/ - catched a rehearsal. Beautiful building and the production quality was top notch
+* Margaret Island - https://www.budapestbylocals.com/margaret-island.html it's super nice to run around it.
 
 ### 2013 Sights
-* Buda castle (home of the national gallery is, so pretty - http://www.mng.hu/
-* Chain Bridge - http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Things_To_Do-Budapest-Chain_Bridge_Szecheny_Lanchid-BR-1.html
+* Buda castle (home of the national gallery) super pretty - http://www.mng.hu/
+* Chain Bridge - http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Things_To_Do-Budapest-Chain_Bridge_Szecheny_Lanchid-BR-1.html great run
 * Heroes Square - http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Things_To_Do-Budapest-Heroes_Square_Hosok_tere-BR-1.html
-* I also went to the Szechenyi bath houses - an ode to the old Hungarian Empire, it's campy but I liked it.  http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Things_To_Do-Budapest-Szechenyi_Bath_Szechenyi_furdo-BR-1.html
-
+* I also went to the [Szechenyi bath house](http://www.szechenyibath.hu/) - an ode to the old Hungarian Empire. Don't get a massage there.
