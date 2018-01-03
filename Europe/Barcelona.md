@@ -4,6 +4,9 @@
 * [Disfrutat](http://ca.disfrutarbarcelona.com/) - Super fancy restaurant but lovely
 * [Tapeo](http://www.tapeoborn.cat/)
 
+## Drinks
+* [Monvinic](http://www.monvinic.com/en/) Most amazing place with a fantastic wine list
+
 ## See
 * [Casa Batlo](https://www.casabatllo.es/en/online-tickets)
 * [Casa Mila](https://www.lapedrera.com/en/home)
@@ -12,7 +15,6 @@
 * [Gopthic Quarter](https://www.tripadvisor.com/Attraction_Review-g187497-d190162-Reviews-Gothic_Quarter_Barri_Gotic-Barcelona_Catalonia.html)
 * [Palau de la Musica](https://www.tripadvisor.com/Attraction_Review-g187497-d190824-Reviews-Palau_de_la_Musica_Orfeo_Catala-Barcelona_Catalonia.html)
 * [Parc de la Ciutadella](https://www.tripadvisor.com/Attraction_Review-g187497-d240504-Reviews-El_Desconsol-Barcelona_Catalonia.html)
-
 
 ## Day trips from Barcelona
 * Penedes Cava tours - http://barcelona-secrets.com/barcelona-wine-tours/cava-penedes/ We highly enjoyed the cava tours. They pick you up from plaza catalunya and return you
