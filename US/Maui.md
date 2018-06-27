@@ -4,6 +4,7 @@ have very few days (takes a full day). Also if you get carsick it is likely you'
 ### Beaches
 * http://www.yelp.com/biz/maluaka-beach-kihei
 * http://www.yelp.com/biz/kamaole-beach-iii-kihei
+* https://www.yelp.com/biz/keawakapu-beach-kihei-2
 
 
 ### Things to do / Places
@@ -21,6 +22,8 @@ spots. I kept thinking that it was the best money I ever spent. The coral was am
 
 ### Food
 
+[Paia's Fish Market](https://www.yelp.com/biz/paia-fish-market-southside-kihei)
+[Monkeypod Mai Tais](https://www.yelp.com/biz/monkeypod-kitchen-by-merriman-kihei)
 [Lelanis on the Beach - Beachside Grill](http://www.leilanis.com/menus/beachside-grill)
 Sit at the bar for killer Mai-Tais (we spent new year drinking Mai-Tais - they come in tiki glasses). Converse with the bartender and
 he'll start making them stronger, it helps if you critizice people for their shitty choice of drinks (bud light), he seemed to appreciate the
@@ -32,6 +35,13 @@ restaurant chain. We only stopped in the ones whose location gave you super pret
 Lahaina was fun and it has tons of people walking at night. Monkeypod was a nice restaurant and Yelp is pretty alright when it comes to
 local recommendations.
 
-Breakfast at the [Chez Meme bistro & bakery](http://www.yelp.com/biz/chez-meme-bistro-and-bakery-kihei) was awesome, we returned to it several times while in town.
 
-[Migrant](http://www.yelp.com/biz/migrant-kihei-2) is a fancier restaurant choice by a Top Chef contestant.
+
+### Where to stay
+
+I love the Wailea Mackena area and have stayed in the following places
+* https://www.airbnb.com/rooms/22367322
+* https://www.airbnb.com/rooms/18294677
+* https://www.airbnb.com/rooms/17606503
+* https://www.airbnb.com/rooms/189289
+* https://www.airbnb.com/rooms/1320963
