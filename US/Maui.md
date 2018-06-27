@@ -24,6 +24,9 @@ spots. I kept thinking that it was the best money I ever spent. The coral was am
 
 [Tortugas galore in Ho'okipa Beach Park](https://www.tripadvisor.com/ShowUserReviews-g60636-d108461-r178874290-Ho_okipa_Beach_Park-Paia_Maui_Hawaii.html)
 
+[Waimoku falls](http://www.unrealhawaii.com/2013/04/pipiwai-trail-to-waimoku-falls/)
+
+
 ### Food
 
 * [Paia's Fish Market](https://www.yelp.com/biz/paia-fish-market-southside-kihei) - really good food that's super fresh
