@@ -26,6 +26,8 @@ spots. I kept thinking that it was the best money I ever spent. The coral was am
 
 [Waimoku falls](http://www.unrealhawaii.com/2013/04/pipiwai-trail-to-waimoku-falls/)
 
+[Ahihi-Kinau Natural Area Reserve](https://dlnr.hawaii.gov/ecosystems/nars/maui/ahihi-kinau-2/) awesome lava fields
+
 
 ### Food
 
