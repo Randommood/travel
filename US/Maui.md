@@ -20,21 +20,16 @@ beautiful. We were staying at Kanapali Beach and Black Rock was a bit rough for 
 super fun and the locations they picked for snorkeling were among the best ones I've seen. They take you to Molokini crater and a few more
 spots. I kept thinking that it was the best money I ever spent. The coral was amazing, saw whales, turtles, and dolphins.
 
+[Road to Hana w bamboo forest](https://www.paradise-found-in-maui.com/bamboo-forest.html) and [banana bread](https://ocmomblog.com/halfway-hana-home-original-banana-bread/) stand in the middle.
+
+
 ### Food
 
-[Paia's Fish Market](https://www.yelp.com/biz/paia-fish-market-southside-kihei)
-[Monkeypod Mai Tais](https://www.yelp.com/biz/monkeypod-kitchen-by-merriman-kihei)
-[Lelanis on the Beach - Beachside Grill](http://www.leilanis.com/menus/beachside-grill)
-Sit at the bar for killer Mai-Tais (we spent new year drinking Mai-Tais - they come in tiki glasses). Converse with the bartender and
-he'll start making them stronger, it helps if you critizice people for their shitty choice of drinks (bud light), he seemed to appreciate the
-comment.
-
-Cheeseburger in paradise has a reasonably alcoholic Mai-Tai but it is not as interesting as the ones with pommegranate juice and it's a
-restaurant chain. We only stopped in the ones whose location gave you super pretty views.
-
-Lahaina was fun and it has tons of people walking at night. Monkeypod was a nice restaurant and Yelp is pretty alright when it comes to
-local recommendations.
-
+* [Paia's Fish Market](https://www.yelp.com/biz/paia-fish-market-southside-kihei) - really good food that's super fresh
+* [South shore tiki Lounge](http://southshoretiki.com/) - real good mai tais
+* [Monkeypod Mai Tais](https://www.yelp.com/biz/monkeypod-kitchen-by-merriman-kihei) - all about the foam
+* [Lelanis on the Beach - Beachside Grill](http://www.leilanis.com/menus/beachside-grill) Sit at the bar for okay Mai-tais in kanapali
+* [Mama's fish house](https://www.mamasfishhouse.com/) - for a super fancy but really great seafood
 
 
 ### Where to stay
