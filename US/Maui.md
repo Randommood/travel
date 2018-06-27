@@ -22,6 +22,7 @@ spots. I kept thinking that it was the best money I ever spent. The coral was am
 
 [Road to Hana w bamboo forest](https://www.paradise-found-in-maui.com/bamboo-forest.html) and [banana bread](https://ocmomblog.com/halfway-hana-home-original-banana-bread/) stand in the middle.
 
+[Tortugas galore in Ho'okipa Beach Park](https://www.tripadvisor.com/ShowUserReviews-g60636-d108461-r178874290-Ho_okipa_Beach_Park-Paia_Maui_Hawaii.html)
 
 ### Food
 
