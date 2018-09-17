@@ -1,5 +1,4 @@
-So Maui is a bit spread out and you'll need a car. Once you do you can go anywhere. I don't recommend making the road to Hana if you
-have very few days (takes a full day). Also if you get carsick it is likely you'll have a bad time driving to Hana.
+So Maui is a bit spread out and you'll need a car. Once you do you can go anywhere.
 
 ### Beaches
 * http://www.yelp.com/biz/maluaka-beach-kihei
@@ -20,7 +19,7 @@ beautiful. We were staying at Kanapali Beach and Black Rock was a bit rough for 
 super fun and the locations they picked for snorkeling were among the best ones I've seen. They take you to Molokini crater and a few more
 spots. I kept thinking that it was the best money I ever spent. The coral was amazing, saw whales, turtles, and dolphins.
 
-[Road to Hana w bamboo forest](https://www.paradise-found-in-maui.com/bamboo-forest.html) and [banana bread](https://ocmomblog.com/halfway-hana-home-original-banana-bread/) stand in the middle.
+[Road to Hana w bamboo forest](https://www.paradise-found-in-maui.com/bamboo-forest.html) and [banana bread](https://ocmomblog.com/halfway-hana-home-original-banana-bread/) stand in the middle. Takes about a whole day but the waterfall at the end of the bamboo forest is a beautiful sight.
 
 [Tortugas galore in Ho'okipa Beach Park](https://www.tripadvisor.com/ShowUserReviews-g60636-d108461-r178874290-Ho_okipa_Beach_Park-Paia_Maui_Hawaii.html)
 
