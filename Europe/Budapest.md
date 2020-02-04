@@ -18,6 +18,8 @@ Wine
 * [City and Wine tour](http://cityandwine.hu/en). Lovely tour, Etyek is a super pretty region and the wineries we visited were tiny producers. Glad I did it, [Tripadvisor reviews](https://www.tripadvisor.com/Attraction_Review-g274887-d3548341-Reviews-City_and_Wine_Tours-Budapest_Central_Hungary.html) agree.
 * http://www.budapestbylocals.com/wine-tasting-in-buda-castle.html - to try next year
 
+Bars
+* Boutiq Bar -- great cocktails: http://www.boutiqbar.hu/
 
 ### 2016 Sights
 * St Stephen Basilica (returned) - If you can stay for one of the concerts do. We listened to an amazing violin solo http://www.virtualtourist.com/travel/Europe/Hungary/Budapest_Fovaros/Budapest-436839/Things_To_Do-Budapest-St_Stephens_Basilica_Szent_Istvan_Bazilika-BR-1.html
