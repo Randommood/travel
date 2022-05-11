@@ -2,7 +2,7 @@
 * [El Quim - La Boqueria](http://elquimdelaboqueria.com/?lang=en)
 * [Tapas at Vinitus](https://foursquare.com/v/vinitus/54859d75498ec850acd351e3)
 * [Tapeo](http://www.tapeoborn.cat/)
-* [Disfrutar](http://ca.disfrutarbarcelona.com/) - Super fancy restaurant but lovely
+* [Disfrutar](https://www.disfrutarbarcelona.com/) - Super fancy restaurant, lovely, once in a lifetime kind of experience
 
 ## Drinks
 * [Monvinic](http://www.monvinic.com/en/) Most amazing place with a fantastic wine list
