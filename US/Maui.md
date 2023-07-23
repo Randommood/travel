@@ -1,6 +1,8 @@
 So Maui is a bit spread out and you'll definitely need a car. Once you do you can go anywhere, here are our favorite spots:
 
 ### Beaches
+
+* Ulua Beach - https://www.yelp.com/biz/ulua-beach-park-wailea
 * http://www.yelp.com/biz/maluaka-beach-kihei
 * http://www.yelp.com/biz/kamaole-beach-iii-kihei
 * https://www.yelp.com/biz/keawakapu-beach-kihei-2
@@ -29,15 +31,20 @@ spots. I kept thinking that it was the best money I ever spent. The coral was am
 
 [Haleakala National Park](https://www.yelp.com/biz/haleakala-national-park-makawao-2) Very windy, super high, spectacular views
 
+[Pineapple Farm Tour](https://mauipineappletour.com/) 
+
 
 ### Food
 
 * [Paia's Fish Market](https://www.yelp.com/biz/paia-fish-market-southside-kihei) - really good food that's super fresh
-* [Coconuts Fish Cafe](https://www.coconutsfishcafe.com/) - similar to Paia's 
+* [Coconuts Fish Cafe](https://www.coconutsfishcafe.com/) - similar to Paia's, a close by alternative if Paia is too busy 
 * [South shore tiki Lounge](http://southshoretiki.com/) - real good mai tais
 * [Monkeypod Mai Tais](https://www.yelp.com/biz/monkeypod-kitchen-by-merriman-kihei) - all about the foam
 * [Lelanis on the Beach - Beachside Grill](http://www.leilanis.com/menus/beachside-grill) Sit at the bar for okay Mai-tais in kanapali
 * [Mama's fish house](https://www.mamasfishhouse.com/) - for a super fancy but really great seafood
+* [Maui Brewing Co](https://mauibrewingco.com/) - lovely outdoor patio and very kid friendly
+* [Oao sushi](https://www.yelp.com/biz/oao-kihei-3) - new place right across monkeypod
+* [Maui bread](https://www.mauibreadco.com/) - 
 
 
 ### Traveling with kids
