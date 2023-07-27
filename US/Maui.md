@@ -2,6 +2,7 @@ So Maui is a bit spread out and you'll definitely need a car. Once you do you ca
 
 ### Beaches
 
+* Wailea Beach - https://www.yelp.com/biz/wailea-beach-wailea-makena - lovely and super convenient with the 4 season's beack cafe & restaurant close by
 * Ulua Beach - https://www.yelp.com/biz/ulua-beach-park-wailea
 * http://www.yelp.com/biz/maluaka-beach-kihei
 * http://www.yelp.com/biz/kamaole-beach-iii-kihei
