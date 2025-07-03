@@ -1,4 +1,7 @@
 ## Eats
+* [Fismuler](https://fismuler.com/en/home/barcelona/) - Excellent food and atmosphere
+* [Anxoita Bodega](https://en.tripadvisor.com.hk/Restaurant_Review-g187497-d25306647-Reviews-or30-Anxoita_Bodega-Barcelona_Catalonia.html) - Great tapas, cute place
+* [Los Tortillez](https://www.lostortillez.com/) - Classic spanish tortillas
 * [El Quim - La Boqueria](http://elquimdelaboqueria.com/?lang=en)
 * [Tapas at Vinitus](https://foursquare.com/v/vinitus/54859d75498ec850acd351e3)
 * [Tapeo](http://www.tapeoborn.cat/)
@@ -21,6 +24,7 @@
 * Monserrat - http://barcelona-secrets.com/barcelona-day-tours/montserrat-barcelona/
 
 ## Winery Recommendations
+* [Raventos](https://www.raventos.com/cellar) - THE BEST. Excellent sparkling wine, a bit expensive (about 150 euros per person) but it's the most spectacular sparkling wine you'll have from the Family that made Cava happen. 
 * http://www.visitascodorniu.com/booking-codorniuvisit-date/ - A large producer well set up for enotourism. There will definitely be options available here
 * http://www.freixenet.com/ - This is the largest producer and is nearly always open, so booking shouldn't be necessary. Best to give them a call jus t in case, though.
 * http://www.recaredo.com/en/contact/
