@@ -60,6 +60,6 @@ There are lots of baby/kid rental places. We have rented cribs, beach carts, ten
 
 I love the Wailea Mackena area and have stayed in the following places
 * https://www.airbnb.com/rooms/16675885
-* https://www.airbnb.com/rooms/22271681
+* https://www.airbnb.com/rooms/22271681?guests=1&adults=1&s=67&unique_share_id=2c9f2257-e870-47f7-b30b-7fe05293c20e
 * https://www.airbnb.com/rooms/26007020
 * https://www.airbnb.com/rooms/22367322
