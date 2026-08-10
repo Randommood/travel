@@ -62,3 +62,4 @@ I love the Wailea Mackena area and have stayed in the following places
 * https://www.airbnb.com/rooms/16675885
 * https://www.airbnb.com/rooms/22271681
 * https://www.airbnb.com/rooms/26007020
+* https://www.airbnb.com/rooms/22367322
